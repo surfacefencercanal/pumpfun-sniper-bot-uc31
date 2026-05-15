@@ -1,4 +1,4 @@
-# 
+# secure pump.fun sniper bot | degen-coin-scanning + auto-buy offers the most advanced pump.fun sniper bot, with degen-coin-scanning and auto-buy. Ideal for professional MEV and
 
 
 
